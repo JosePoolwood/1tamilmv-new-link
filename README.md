@@ -8,7 +8,7 @@ Everything on the internet is not always free, but TamilMV offers users a compre
 
 We understand your concern when TamilMV is not available due to government bans or other reasons so we have gathered a list of new 1TamilMV proxy sites. So even if TamilMV is blocked in your region, you can still access its content through these proxy sites.
 
-👉👉 NEW LINK
+👉👉 [NEW LINK](https://bit.ly/4deFjtP)
 
 These TamilMV mirror sites are exactly the same as the original TamilMV website, but they have a different domain name and IP address. Clicking on any of these mirror links will take you to the same content library as the original website.
 
@@ -18,4 +18,4 @@ Tamilmv, a renowned platform for streaming and downloading an extensive collecti
 
 As we all know, not everyone can afford to spend money on paid streaming services. TamilMV has become an important source of entertainment for many as it offers a wide range of content for free.
 
-👉👉 NEW LINK
+👉👉 [NEW LINK](https://bit.ly/4deFjtP)
